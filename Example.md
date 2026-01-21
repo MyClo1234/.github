@@ -7,5 +7,4 @@ ok then. This practice is finished here.
 
 see you.
 
-
-asdfasdfasdfasdf
+Today's Todos
