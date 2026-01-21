@@ -3,4 +3,9 @@ Nice to meet you.
 
 yeah.
 
-asdfasklf;jasldfja;lkdfjaskl
+ok then. This practice is finished here.
+
+see you.
+
+
+asdfasdfasdfasdf
